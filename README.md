@@ -1,0 +1,76 @@
+# KISS OF LIFE – Nobody Knows (Remix)
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Tonight, let's start the masquerade. "I'm coming
+over"
+But nobody knows my little secret
+모든 걸 보여주기엔 좀 이르잖니
+아껴 둬 Never talk, never tell
+When you feel it, come and get it
+감당해 봐 Truth or Dare, It's alright
+Yeah I could be there for you, yeah I can be
+there
+솔직한 나를 원했거든
+좀 더 기다려 I'll party all night
+Yeah get this party started, let's get it
+started
+Yeah nobody knows (Know)
+Yeah nobody knows 보이는 대로 믿는 Good time
+(Such a good time)
+Yeah such a good time together (Such a good
+time)
+Yeah nobody knows (Know)
+Yeah nobody knows 아무도 본 적 없는 Dancing in
+shadow (Guess what)
+나만의 Good time forever (That's right)
+미소 뒤에 숨긴 나의 Villain 같은 Vibe
+굳이 쓸데없는 얘긴 잘 안 하는 Type
+For real? (For real! For real!)
+And later in the night, 저 달빛 아래 홀로 서
+깊은 어둠조차 두렵지 않아 Babe
+When you feel it, come and get it
+이끌리지 너도 모르게 Right
+Yeah I could be there for you, yeah I can be
+there
+어떤 날 상상했는지는
+딱히 내게 중요하지 않아
+Yeah get this party started, let's get it
+started
+Yeah nobody knows (Know)
+Yeah nobody knows 보이는 대로 믿는 Good time
+(Such a good time)
+Yeah such a good time together (Such a good
+time)
+Yeah nobody knows (Know)
+Yeah nobody knows 아무도 본 적 없는 Dancing in
+shadow (Guess what)
+나만의 Good time forever (That's right)
+Yeah what's good!
+Take your time, take your time time
+Take your time time, take your time time time
+Let's flip that switch!
+I'm a wild, I'm a wild wild
+I'm a wild wild, I'm a wild wild wild
+Yeah what's good!
+Take your time, take your time time
+Take your time time, take your time time time
+Let's flip that switch!
+Make it wild, make it wild wild
+Make it wild wild, make it wild wild wild
+When you feel it, come and get it
+너도 나와 함께 Party all night
+Yeah get this party started, let's get it
+started
+Yeah nobody knows (Know)
+Yeah nobody knows 보이는 대로 믿어 Good boy
+(Such a good time)
+Yeah such a good time together (Such a good
+time)
+Yeah nobody knows (Know)
+Yeah nobody knows 더 깊이 자유로운 Dancing in
+shadow (Guess what)
+나만의 Good time forever (That's right)
+Good time forever
+```
